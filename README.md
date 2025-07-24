@@ -1,0 +1,1 @@
+# ControleCarrinhoBluetooth-privacy-policy
